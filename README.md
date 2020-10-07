@@ -1,4 +1,10 @@
 # It115-fl20-bio
-A place to build my bio
+Add such info such folling 
+Identify your audience: It’s important to know your audience
+Start with a powerful first sentence: 
+Tell a compelling story: What makes you different from other people
+Include a call to action:
+Wrap it up with personality: ADD personality
+How we’ll solve a particular problem
 
-I need to work on this later 
+
